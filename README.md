@@ -9,3 +9,4 @@
 ![Captura de pantalla (17)](https://user-images.githubusercontent.com/86083497/222826521-1bb1dbb7-717e-4e62-b8fb-cb688e69aa15.png)
 ![Captura de pantalla (5)](https://user-images.githubusercontent.com/86083497/226491550-1098f5a0-7ccc-4377-80c3-6109ac8a7f4a.png)
 ![Captura de pantalla (6)](https://user-images.githubusercontent.com/86083497/226491559-0d753603-cc24-48b2-8dd7-cef6ee0a1e21.png)
+![Captura de pantalla (9)](https://user-images.githubusercontent.com/86083497/226491744-9cd69b5a-042b-4565-b49b-e87c00a3999b.png)
